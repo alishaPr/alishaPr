@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Alisha
-- 👀 I’m interested in Data Science and Analytics
+- 👀 I’m interested in Data Engineerieng , AI and Analytics
 - You can reach me at alishapriyadarshini998@gmail.com or connect at https://www.linkedin.com/in/alisha-priyadarshini-188b35198/
